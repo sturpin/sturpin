@@ -38,6 +38,7 @@ Tengo la suerte de vivir en [Cieza](http://www.cieza.es) y poder disfrutar de su
 
 ## :mailbox: Cómo llegar a mí...
 ¡Me encanta estar en contacto! Una persona sin amigos es como si viviera en el desierto :satisfied:
+
 :computer: [Página Web](https://sergioturpin.es) 
 
 ## :bar_chart: Mis estadísticas
